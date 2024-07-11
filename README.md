@@ -2,7 +2,7 @@
 - 👀 I’m interested in a lot of things
 - 🌱 I’m currently learning python, C# and PHP
 - 💞️ I’m looking to collaborate on things
-- 📫 How to reach me riedeldennis7@gmail.com, "bomberdenn" on discord
+- 📫 How to reach me: riedeldennis7@gmail.com, "bomberdenn" on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: idk i'm boring
 
